@@ -1,5 +1,23 @@
 # Purpose-of-Church-Christ-s-Body-Membership
 
+jesus is real you know the way it was
+03:08
+supposed to be
+03:09
+they were supposed to come in and see a
+03:12
+unit
+03:13
+in the church of power in all of these
+03:16
+people
+03:16
+to where they okay that could have been
+03:20
+accomplished apart from
+03:21
+something supernatural because i see the
+
 ns of something
 03:40
 supernatural going on there
